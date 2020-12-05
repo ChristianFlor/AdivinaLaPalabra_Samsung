@@ -1,0 +1,1 @@
+# AdivinaLaPalabra_Samsung
